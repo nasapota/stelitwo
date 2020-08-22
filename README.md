@@ -1,1 +1,0 @@
-# steli.kiev.ua
